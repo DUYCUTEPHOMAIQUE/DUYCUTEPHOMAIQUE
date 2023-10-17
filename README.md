@@ -1,4 +1,4 @@
-# Hey everyone, I'm Duy ToT
+# Hey everyone, I'm Duy (Ｔ▽Ｔ)
 
 <img src="./assets/cryT_T.gif">
 
